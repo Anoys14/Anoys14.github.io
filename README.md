@@ -1,1 +1,0 @@
-# Anoys14.github.io
